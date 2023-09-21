@@ -1,7 +1,10 @@
 # DERBER_UNO_FRESH
 deber uno, culminado para prender mas 
-![image](https://github.com/kingoloza/DERBER_UNO_FRESH/assets/124217307/0f981e45-41c5-401d-9581-132a8588651b)
 ![image](https://github.com/kingoloza/DERBER_UNO_FRESH/assets/124217307/072c7566-fe9f-4b9b-b5f1-ade2b9367d1b)
+![image](https://github.com/kingoloza/DERBER_UNO_FRESH/assets/124217307/7b8ca28a-c9a0-41aa-b054-7eb8e91f1431)
+![image](https://github.com/kingoloza/DERBER_UNO_FRESH/assets/124217307/c831a1d6-ea3a-4610-9e66-9adadf562b65)
+
+
 
 
 
